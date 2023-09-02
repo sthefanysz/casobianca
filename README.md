@@ -16,3 +16,10 @@ https://noticias.uol.com.br/cotidiano/ultimas-noticias/2013/07/31/apos-ameaca-de
 https://www.terra.com.br/noticias/brasil/policia/go-adolescentes-que-mataram-amiga-por-ciumes-recebem-pena-de-3-anos,7f4af4e99dfe0410VgnVCM20000099cceb0aRCRD.html
 
 https://www.em.com.br/app/noticia/nacional/2013/07/31/interna_nacional,429790/foram-apreendidas-as-adolescentes-que-teriam-matado-amiga-por-ciume.shtml
+
+https://m.folha.uol.com.br/cotidiano/2013/08/1324707-ela-so-queria-fazer-o-bem-diz-pai-de-jovem-morta-em-go.shtml
+
+https://g1.globo.com/goias/noticia/2013/08/suspeita-de-matar-amiga-depoe-em-goias-pesquisamos-como-matar.html
+
+https://g1.globo.com/goias/noticia/2013/07/suspeita-relata-como-matou-amiga-em-go-ela-ficou-muito-desesperada.html
+
